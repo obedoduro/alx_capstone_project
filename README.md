@@ -31,3 +31,6 @@ Will add new folders for new project during scaling up the website in order to n
 
 
 My contact info will be included at the bottom of the page for potential client or employers to rech me on.
+Name: ODURO OBED ADJEI
+Contact No.: +233 544944036
+Contact emali: oduroadjeiobed16@gmail.com
